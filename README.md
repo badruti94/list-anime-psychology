@@ -3,6 +3,7 @@
 REKOMENDASI ANIME GENRE PSIKOLOGIKAL
 Sedang mencari anime yang sanggup mengacak-acak psikologi manusia atau anime yang mampu mengubah pandanganmu terhadap masyarakat dan dunia menjadi sinis?
 Tenang, saya telah memilih beberapa judul dan merangkumnya sehingga kalian tidak perlu repot-repot browsing atau googling sana sini.
+
 • PSIKOLOGIKAL MAINSTREAM
 Beberapa judul di daftar ini mungkin sudah pernah kalian tonton karena popularitasnya yang cukup tinggi. Namun, yang ada di daftar ini tidak melulu seri yang gelap, ada juga seri psikologikal yang ringan.
 - Death Note (2006)
@@ -26,6 +27,7 @@ Beberapa judul di daftar ini mungkin sudah pernah kalian tonton karena popularit
 - Classroom of the Elite (2017)
 - Seishun Butta Yarou (2018)
 • Durarara
+
  • SEMAKIN JATUH KEDALAM LUBANG
 Anime ini tidak sepopuler judul-judul diatas, namun besar kemungkinan kalian telah mendengarnya atau sekedar mengetahuinya. 
 • ID:Invaded (2020)
@@ -52,6 +54,7 @@ Anime ini tidak sepopuler judul-judul diatas, namun besar kemungkinan kalian tel
 - Ping Pong the Animation (2014)
 - Zetsuen no Tempest (2012)
 - Umineko (2009)
+- 
  • SEMAKIN TERSERET ARUS
 Anime-anime dibawah ini memang jarang diketahui orang, namun belum termasuk kedalam kategori terbawah karena isi atau cerita dari animenya masih belum masuk ke ranah absurd.
 - Aoi Bungaku Series (2009)
@@ -72,6 +75,7 @@ Anime-anime dibawah ini memang jarang diketahui orang, namun belum termasuk keda
 - Gantz (2004)
 - Shigofumi (2008)
 - Tatami Galaxy (2010)
+- 
  • DASAR DARI VOID DAN ANTAH-BERANTAH
 Sangat jarang orang yang menonton anime-anime ini. Sebagian besar list disini bahkan sudah menyentuh ranah dementia, sub-genre psikologikal yang dapat mengacaukan kondisi psikologis penonton. Namun, mereka adalah mahakarya yang underrated dengan gaya penceritaan yang absurd dan tidak biasa.
 - Texhnolyze (2003)
